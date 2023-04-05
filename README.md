@@ -1,4 +1,4 @@
-Hey There :wave:, my name is Vedant(you can call me Stotraa).
+Hey There :wave:, my name is Vedant (you can call me Stotraa).
 
 - 🔭 I'm Currently working on building fun projects to enhance my skills.
 
